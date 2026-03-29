@@ -37,3 +37,6 @@ FICTION-KIN LIST
 <img width= "100" height="250" alt="image" src= "https://i.pinimg.com/736x/2c/bb/9d/2cbb9db732abe270a2dcdcc5dfc81e47.jpg" />
 <img width= "100" height="250" alt="image" src= "https://static.wikia.nocookie.net/e0a46641-76b1-413e-8da3-836c8da21d22/scale-to-width/755" />
 <img width= "100" height= "250" alt="image" src= "https://preview.redd.it/im-shadow-the-hedgehog-ask-me-something-i-guess-v0-ski7h3siuxxf1.jpeg?auto=webp&s=26d86d262ca64450f05ad42da6318c82cea51c9f" />
+<img width= "100" height= "250" alt="image" src= "https://yt3.googleusercontent.com/ytc/AIdro_lOzpWyqhZyzjm_2kizBcBjW0Ioq-0Nxy-HMRhIlEBrj38=s900-c-k-c0x00ffffff-no-rj" />
+<img width="100" height="250" alt="image" src="https://github.com/user-attachments/assets/f84e2f9f-2d6f-4181-9d2b-f43da75aef5a" />
+<img width="100" height="250" alt="image" src="https://preview.redd.it/what-do-u-think-of-pomni-v0-6w4bhoy7celf1.jpg?width=736&format=pjpg&auto=webp&s=429720b679ad6cf36bb8962dcbaec836d2541d71" />
