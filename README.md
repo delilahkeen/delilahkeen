@@ -4,12 +4,16 @@
  
 𝙏𝙤𝙢 / 𝙈𝙖𝙩𝙩 / 𝙅𝙖𝙘𝙠
  --
-I have: BPD, Depression, Anxiety (SAD, GAD.)
-<div align="center"> 
-<img width="100" height="250" alt="image" src= "https://media1.tenor.com/m/4rB_vHWo4zIAAAAd/eddsworld-tom.gif" />  
+ <img width="50" height="250" alt="image" src= "https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSdd0_RaQXFWS2M1AFy_562FzvoYo09mTpdCHaQoytzIQ&s&ec=121584908"/>
+ <img width="50" height="250" alt="image" src= "https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Pansexuality_Pride_Flag.svg/330px-Pansexuality_Pride_Flag.svg.png"/>
+ 
+
+
  
 𝘽𝙀𝙁𝙊𝙍𝙀 𝙔𝙊𝙐 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏
 --
+I have: BPD, Depression, Anxiety (SAD, GAD.)
+
 I may not respond to you if i don't know you but for the most part i might making a pony if i am not rather responding back or even talking at all.
 
 I am a yumeshipper, **most** of the time i am NON-sharing but i really don’t care about any doubles, unless they're a dick about it. I am also an selfshipper, i am also a fictonkin for the most part i dont care about any fictonkin doubles with the downside being romeo (mcsm) ones which may have to intwec.
@@ -42,3 +46,4 @@ FICTION-KIN LIST
 <img width="100" height="250" alt="image" src="https://preview.redd.it/what-do-u-think-of-pomni-v0-6w4bhoy7celf1.jpg?width=736&format=pjpg&auto=webp&s=429720b679ad6cf36bb8962dcbaec836d2541d71" />
 <img width="100" height="250" alt="image" src= "https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSJDr9r8D6ngvBFKK553VHt8hS0r7LuUaPnig&s" />
 <img width="100" height="250" alt="image" src= "https://i.pinimg.com/736x/24/0b/df/240bdf1bdf98656e9f36ba5671c56a92.jpg" />
+<img width="950" height="250" alt="image" src="https://64.media.tumblr.com/a3b63fe3a4adefaf3cb9c2755b325f3f/c3b218973bde2fc8-bb/s400x600/e1dc36000e2120f5318c0fe0ac7d970d886572dc.gifv" />
