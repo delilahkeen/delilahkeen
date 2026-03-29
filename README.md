@@ -46,4 +46,4 @@ FICTION-KIN LIST
 <img width="100" height="250" alt="image" src="https://preview.redd.it/what-do-u-think-of-pomni-v0-6w4bhoy7celf1.jpg?width=736&format=pjpg&auto=webp&s=429720b679ad6cf36bb8962dcbaec836d2541d71" />
 <img width="100" height="250" alt="image" src= "https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSJDr9r8D6ngvBFKK553VHt8hS0r7LuUaPnig&s" />
 <img width="100" height="250" alt="image" src= "https://i.pinimg.com/736x/24/0b/df/240bdf1bdf98656e9f36ba5671c56a92.jpg" />
-<img width="950" height="250" alt="image" src="https://64.media.tumblr.com/a3b63fe3a4adefaf3cb9c2755b325f3f/c3b218973bde2fc8-bb/s400x600/e1dc36000e2120f5318c0fe0ac7d970d886572dc.gifv" />
+
