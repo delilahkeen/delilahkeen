@@ -21,7 +21,7 @@ I can also be very straight-up rude sometimes if my mood was very shitty at the 
 I always do whisper to interact (w2i) but if i'm not you're completely fine to not whisper and chat in general with me.
 
 
-FICTION-KIN LIST (wip)
+FICTION-KIN LIST
 --
 <img width="100" height="250" alt="image" src= "https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSQQ3Zpz9GPMituEGIqrUarVaUlN1TPP8Ez0w&s" />
 <img width="100" height="250" alt="image" src= "https://i.pinimg.com/736x/18/5c/13/185c136995d6fd10951096431f5a0e86.jpg" />
