@@ -1,27 +1,29 @@
-<div align="center"> 
-𝙼𝙰𝚃𝚃 𝙾𝚁 𝙺𝙸𝙽𝚂
 
+
+<div align="center"> 
  
-𝑪+𝑯 𝑭𝑹𝑬𝑬𝑳𝒀 , 𝑷𝑳𝑬𝑨𝑺𝑬 𝑰𝑵𝑻𝑬𝑹𝑨𝑪𝑻 <33
-
-<img width="25" height="35" alt="image" src= "https://64.media.tumblr.com/d0ab96b17188592f8bf0302879a259aa/efa1017aff24ee12-ac/s75x75_c1/b1b92cd8788755fa8b8968de9ea52b927c0bff32.gifv" />
-
-https://pronouns.cc/@romeo
-  
-
+𝙏𝙤𝙢 / 𝙈𝙖𝙩𝙩 / 𝙅𝙖𝙘𝙠
+ --
+I have: BPD, Depression, Anxiety (SAD, GAD.)
 <div align="center"> 
-  
-<img width="500" height="500" alt="image" src="https://64.media.tumblr.com/be81a902103ab7be6bb4ed79b4fb055a/94b6e6f8e4242937-a8/s1280x1920/4f1df2f6b8b6d630e7f1d9ed308871bb7d235b1e.pnj" />
-<p align="center">
+<img width="100" height="250" alt="image" src= "https://media1.tenor.com/m/4rB_vHWo4zIAAAAd/eddsworld-tom.gif" />  
+ 
+𝘽𝙀𝙁𝙊𝙍𝙀 𝙔𝙊𝙐 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏
+--
+I may not respond to you if i don't know you but for the most part i might making a pony if i am not rather responding back or even talking at all.
 
-<img width="150" height="85" alt="image" src="https://64.media.tumblr.com/6d571d5f5f14233976a0f083eebdb49b/25b2bb827dcfdb37-82/s250x400/d92416b2df5d3e9cc22cfa2481bb649391201a99.pnj" />
+I am a yumeshipper, **most** of the time i am NON-sharing but i really don’t care about any doubles, unless they're a dick about it. I am also an selfshipper, i am also a fictonkin for the most part i dont care about any fictonkin doubles with the downside being romeo (mcsm) ones which may have to intwec.
 
-<img width="150" height="85" alt="image" src="https://github.com/user-attachments/assets/84facaff-61e8-4040-94ed-393f94dc9d3f" />
-<img width="150" height="85" alt="image" src="https://64.media.tumblr.com/30a001efbb8e073b9e393244d85b9a63/25b2bb827dcfdb37-bb/s250x400/866ec53954c23006a1caf7343da48ec35056de17.pnj" />
+I may text very dry, sorry if i do but i just can’t pick up social cues or find any way to start conversations without someone speaking first (most of the time in dms i struggle.) i still would love to talk even if i can be dry sometimes.
+
+I can also be very straight-up rude sometimes if my mood was very shitty at the moment or if something happened.
+
+I always do whisper to interact (w2i) but if i'm not you're completely fine to not whisper and chat in general with me.
 
 
-<img width="1000" height="500" alt="image" src="https://64.media.tumblr.com/828df12a02420715abbeca476d7094f3/c2b9a0041152e810-71/s1280x1920/a7e56042969e56178ac0105d26718f18b6a7f797.gifv" />
-
-
-<div align="center"> 
-<img width="250" height="500" alt="image" src="https://media.tenor.com/PAldRyL-jCQAAAAj/timekeeper-timekeeper-cookie.gif" />
+FICTION-KIN LIST (wip)
+--
+<img width="100" height="250" alt="image" src= "https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSQQ3Zpz9GPMituEGIqrUarVaUlN1TPP8Ez0w&s" />
+<img width="100" height="250" alt="image" src= "https://i.pinimg.com/736x/18/5c/13/185c136995d6fd10951096431f5a0e86.jpg" />
+<img width="100" height="250" alt="image" src= "https://static.wikia.nocookie.net/p__/images/b/b2/Jackmcsm.PNG/revision/latest/scale-to-width-down/1200?cb=20240120193714&path-prefix=protagonist" />
+<img width="100" height="250" alt="image" src= "https://i.pinimg.com/736x/0a/43/fb/0a43fb85c6d63f828f9fa739b2261291.jpg" />
