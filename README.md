@@ -27,3 +27,5 @@ FICTION-KIN LIST (wip)
 <img width="100" height="250" alt="image" src= "https://i.pinimg.com/736x/18/5c/13/185c136995d6fd10951096431f5a0e86.jpg" />
 <img width="100" height="250" alt="image" src= "https://static.wikia.nocookie.net/p__/images/b/b2/Jackmcsm.PNG/revision/latest/scale-to-width-down/1200?cb=20240120193714&path-prefix=protagonist" />
 <img width="100" height="250" alt="image" src= "https://i.pinimg.com/736x/0a/43/fb/0a43fb85c6d63f828f9fa739b2261291.jpg" />
+<img width="100" height="250" alt="image" src= "https://preview.redd.it/tord-thats-all-v0-6h07iqrsd4171.jpg?width=640&crop=smart&auto=webp&s=80d8b0a8c6f6e3e3bb4636e23586c98713a7b1bb" />
+<img width="100" height="250" alt="image" src= "https://i1.sndcdn.com/artworks-lwLKr5yj7oLAfofI-v4McwQ-t500x500.jpg" />
