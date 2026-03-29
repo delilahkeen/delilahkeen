@@ -2,7 +2,7 @@
 
 <div align="center"> 
  
-𝙏𝙤𝙢 / 𝙈𝙖𝙩𝙩 / 𝙅𝙖𝙘𝙠
+𝙏𝙤𝙢 / 𝙈𝙖𝙩𝙩 / 𝙅𝙖𝙘𝙠 (or FICTKINS)
  --
  <img width="50" height="250" alt="image" src= "https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSdd0_RaQXFWS2M1AFy_562FzvoYo09mTpdCHaQoytzIQ&s&ec=121584908"/>
  <img width="50" height="250" alt="image" src= "https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Pansexuality_Pride_Flag.svg/330px-Pansexuality_Pride_Flag.svg.png"/>
