@@ -34,3 +34,6 @@ FICTION-KIN LIST
 <img width= "100" height="250" alt="image" src= "https://i.pinimg.com/originals/ae/f1/4d/aef14d51d0381af3289101ef756d1d18.png" />
 <img width= "100" height="250" alt="image" src= "https://i.pinimg.com/736x/a1/94/b4/a194b423f5bfe12791e5d6214fdc33a8.jpg" />
 <img width= "100" height="250" alt="image" src= "https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR2rXYIX0EaKq9eNLcVHCw9bP6mgpJHVGMsyw&s" />
+<img width= "100" height="250" alt="image" src= "https://i.pinimg.com/736x/2c/bb/9d/2cbb9db732abe270a2dcdcc5dfc81e47.jpg" />
+<img width= "100" height="250" alt="image" src= "https://static.wikia.nocookie.net/e0a46641-76b1-413e-8da3-836c8da21d22/scale-to-width/755" />
+<img width= "100" height= "250" alt="image" src= "https://preview.redd.it/im-shadow-the-hedgehog-ask-me-something-i-guess-v0-ski7h3siuxxf1.jpeg?auto=webp&s=26d86d262ca64450f05ad42da6318c82cea51c9f" />
