@@ -12,17 +12,17 @@
  
 𝘽𝙀𝙁𝙊𝙍𝙀 𝙔𝙊𝙐 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏
 --
-I have: BPD, Depression, Anxiety (SAD, GAD.)
+- I have: BPD, Depression, Anxiety (SAD, GAD.)
 
-I may not respond to you if i don't know you but for the most part i might making a pony if i am not rather responding back or even talking at all.
+- I may not respond to you if i don't know you but for the most part i might making a pony if i am not rather responding back or even talking at all.
 
-I am a hyper-sharing yumeshipper, I am also an selfshipper, i am also a fictonkin for the most part i dont care about any fictonkin doubles with the downside being romeo (mcsm) ones which may have to intwec.
+- I am a hyper-sharing yumeshipper, I am also an selfshipper, i am also a fictonkin for the most part i dont care about any fictonkin doubles with the downside being romeo (mcsm) ones which may have to intwec.
 
-I may text very dry, sorry if i do but i just can’t pick up social cues or find any way to start conversations without someone speaking first (most of the time in dms i struggle.) i still would love to talk even if i can be dry sometimes.
+- I may text very dry, sorry if i do but i just can’t pick up social cues or find any way to start conversations without someone speaking first (most of the time in dms i struggle.) i still would love to talk even if i can be dry sometimes.
 
-I can also be very straight-up rude sometimes if my mood was very shitty at the moment or if something happened.
+- I can also be very straight-up rude sometimes if my mood was very shitty at the moment or if something happened.
 
-I always do whisper to interact (w2i) but if i'm not you're completely fine to not whisper and chat in general with me.
+- I always do whisper to interact (w2i) but if i'm not you're completely fine to not whisper and chat in general with me.
 
 𝘿𝙉𝙄 (+ 𝙩𝙝𝙞𝙣 𝙞𝙘𝙚)
 -- 
