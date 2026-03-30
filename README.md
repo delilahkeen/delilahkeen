@@ -33,7 +33,7 @@ Although, i don't have a dni list, anyone can interact just don't act weird arou
 - Bad Things Fandom (the roblox game)
 - Shellvision Shippers (Some harrassed me in the past.)
 - - - 
-FICTION-KIN LIST
+𝙁𝙄𝘾𝙏𝙊𝙉𝙆𝙄𝙉-𝙇𝙄𝙎𝙏
 --
 <img width="100" height="250" alt="image" src= "https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSQQ3Zpz9GPMituEGIqrUarVaUlN1TPP8Ez0w&s" />
 <img width="100" height="250" alt="image" src= "https://i.pinimg.com/736x/18/5c/13/185c136995d6fd10951096431f5a0e86.jpg" />
@@ -55,3 +55,4 @@ FICTION-KIN LIST
 <img width="100" height="250" alt="image" src= "https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSJDr9r8D6ngvBFKK553VHt8hS0r7LuUaPnig&s" />
 <img width="100" height="250" alt="image" src= "https://i.pinimg.com/736x/24/0b/df/240bdf1bdf98656e9f36ba5671c56a92.jpg" />
 
+- - - 
