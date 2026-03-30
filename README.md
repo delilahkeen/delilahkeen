@@ -57,3 +57,7 @@ Although, i don't have a dni list, anyone can interact just don't act weird arou
 <img width="100" height="250" alt="image" src= "https://i.pinimg.com/736x/b5/19/93/b51993eadc62245828c231a577bd0254.jpg" />
 
 - - - 
+
+<img width="325" height="350" alt="image" src= "https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSoQ4_S5AAY1fwnQWLOzd2maxx3hgtSRM_Rkw&s" />
+
+i really like eggchan hi eggchan hiiii
