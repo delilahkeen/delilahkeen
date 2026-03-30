@@ -16,7 +16,7 @@ I have: BPD, Depression, Anxiety (SAD, GAD.)
 
 I may not respond to you if i don't know you but for the most part i might making a pony if i am not rather responding back or even talking at all.
 
-I am a yumeshipper, **most** of the time i am NON-sharing but i really don’t care about any doubles, unless they're a dick about it. I am also an selfshipper, i am also a fictonkin for the most part i dont care about any fictonkin doubles with the downside being romeo (mcsm) ones which may have to intwec.
+I am a hyper-sharing yumeshipper, I am also an selfshipper, i am also a fictonkin for the most part i dont care about any fictonkin doubles with the downside being romeo (mcsm) ones which may have to intwec.
 
 I may text very dry, sorry if i do but i just can’t pick up social cues or find any way to start conversations without someone speaking first (most of the time in dms i struggle.) i still would love to talk even if i can be dry sometimes.
 
