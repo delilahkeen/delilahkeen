@@ -59,6 +59,8 @@ Although, i don't have a dni list, anyone can interact just don't act weird arou
 
 - - - 
 
-<img width="325" height="350" alt="image" src= "https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSoQ4_S5AAY1fwnQWLOzd2maxx3hgtSRM_Rkw&s" />
 
-i really like eggchan hi eggchan hiiii
+<img width="100" height="250" alt="image" src= "https://static.wikia.nocookie.net/minecraftstorymode/images/5/5c/Thewardens2.webp/revision/latest/scale-to-width/360?cb=20240403160544" />
+
+
+hi warden
