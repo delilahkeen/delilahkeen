@@ -27,11 +27,15 @@
 𝘿𝙉𝙄 (+ 𝙩𝙝𝙞𝙣 𝙞𝙘𝙚)
 -- 
 Although, i don't have a dni list, anyone can interact just don't act weird around me and i will block freely / hide you if you act weird around me but other than that i do have a thin ice list.
+
+**THIN ICE LIST**
 - BEING UNDER 12
 - Hazbin Hotel/Helluva Boss fans (some friends aren't included in this)
 - Non-sharing Yumes (mostly for my fictions)
 - Bad Things Fandom (the roblox game)
 - Shellvision Shippers (Some harrassed me in the past.)
+- Any Delilah Keen x Arthur Walton Shippers or Any Delilah Shippers in general.
+- Kpop Stans
 - - - 
 𝙁𝙄𝘾𝙏𝙊𝙉𝙆𝙄𝙉-𝙇𝙄𝙎𝙏
 --
