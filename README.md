@@ -36,6 +36,7 @@ Although, i don't have a dni list, anyone can interact just don't act weird arou
 - Shellvision Shippers (Some harrassed me in the past.)
 - Any Delilah Keen x Arthur Walton Shippers or Any Delilah Shippers in general.
 - Kpop Stans
+- Delilah Yumes / Freaky Delilah Fans 
 - - - 
 𝙁𝙄𝘾𝙏𝙊𝙉𝙆𝙄𝙉-𝙇𝙄𝙎𝙏
 --
