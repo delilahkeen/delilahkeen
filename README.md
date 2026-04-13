@@ -1,8 +1,10 @@
-BIG WIP THINGS ARE TO CHANGE
+<p align="center">
 
 
 
-
+<p align="center">
+ 
+  ## WIP - BIG THINGS ARE TO COME (probably)
 
 <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=SFpro+Swanky&pause=1000&color=121482&center=true&width=435&lines=%22+Are+you+hurt+Romeo?+.%22" alt="Typing SVG" /></a> <p align="center">
