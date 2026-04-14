@@ -13,7 +13,7 @@ $\color{red}{\textsf{look at my stuff b4 interacting}}$
 
 <p align="center">
  
- ⠀⠀<p align="center"> ⠀ [strawpage](https://jackmcsm.straw.page/) ⠀⠀<p align="center"> ⠀[pony town info](https://mattsponytowninfo.straw.page/)  ⠀[fictkin list](https://pronouns.cc/meistro) ⠀ 
+ ⠀⠀<p align="center"> ⠀ [strawpage (its kinda outdated but yk)](https://jackmcsm.straw.page/) ⠀⠀<p align="center"> ⠀[pony town info](https://mattsponytowninfo.straw.page/)  ⠀[fictkin list](https://pronouns.cc/meistro) ⠀ 
  <img width="25" height="50" src="https://64.media.tumblr.com/02c83f4d3b2b1401a5bf3fd8f218e697/2c233c0d3ddf0421-f2/s75x75_c1/c9e33a5fba2c9354a54236b200ca97787f995c3d.gifv"/>
 
 <p align="center">
