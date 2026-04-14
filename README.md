@@ -16,8 +16,9 @@ $\color{red}{\textsf{look at my stuff b4 interacting}}$
  ⠀⠀<p align="center"> ⠀ [strawpage](https://jackmcsm.straw.page/) ⠀⠀<p align="center"> ⠀[pony town info](https://mattsponytowninfo.straw.page/)  ⠀[fictkin list](https://pronouns.cc/meistro) ⠀ 
  <img width="25" height="50" src="https://64.media.tumblr.com/02c83f4d3b2b1401a5bf3fd8f218e697/2c233c0d3ddf0421-f2/s75x75_c1/c9e33a5fba2c9354a54236b200ca97787f995c3d.gifv"/>
 
-
-
+<p align="center">
+<img width="550" height="500" src="https://64.media.tumblr.com/ca02036d604798607e6a21bbc15323ae/2e1ffcc0b98b3a6a-9e/s500x750/c74fd60d18318df27cf733e472e7f9221190fc8b.gifv"/>
+ 
   - - -
   
    <p align="center">
