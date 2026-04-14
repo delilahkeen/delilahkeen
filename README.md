@@ -1,16 +1,8 @@
-<p align="center">
 
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k2imnse2k6tlpbkpvoxigigjay&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=120057&bar_color_cover=true&mode=dark">
-  </a>
-</p>
 
 <p align="center">
  
-  ## WIP - BIG THINGS ARE TO COME (probably)
 
-ok i probably have to rmk all of this again because yeaa
 
 - - -
 
@@ -31,3 +23,10 @@ $\color{dark blue}{\textsf{look at my stuff b4 interacting}}$
 
  
 
+<p align="center">
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k2imnse2k6tlpbkpvoxigigjay&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=120057&bar_color_cover=true&mode=dark">
+  </a>
+</p>
