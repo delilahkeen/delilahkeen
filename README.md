@@ -8,7 +8,7 @@
 
 <p align="center">
  <img width="15" height="50" src="https://64.media.tumblr.com/d563e0636285b3919ed8b477d9bbdcac/5e0047d38d7d6e92-6f/s75x75_c1/289bbc64c867011407e773c9b11f2b22ae73a72d.gifv"/>
-$\color{dark blue}{\textsf{look at my stuff b4 interacting}}$
+$\color{red}{\textsf{look at my stuff b4 interacting}}$
 <img width="15" height="50" src="https://64.media.tumblr.com/d563e0636285b3919ed8b477d9bbdcac/5e0047d38d7d6e92-6f/s75x75_c1/289bbc64c867011407e773c9b11f2b22ae73a72d.gifv"/>
 
 <p align="center">
@@ -19,6 +19,9 @@ $\color{dark blue}{\textsf{look at my stuff b4 interacting}}$
 
 
   - - -
+  
+   <p align="center">
+  $\color{yellow}{\textsf{i only follow people that i talked to on pony town.}}$
   ⠀<p align="center">
   <img width="100" height="50" src="https://64.media.tumblr.com/57b58e19736030ab9052fec7c7e62356/2b7572ab74c9841c-53/s100x200/3a17453806d3a4ae63a5556e7ceae9efeb2a81b8.pnj" />
 <img width="100" height="50" src="https://64.media.tumblr.com/3dc313b6407669f5fe8ae1166bc0f503/2b7572ab74c9841c-3a/s100x200/d4309c2c0e05053c4823939847cb2095969b96a7.pnj" />
