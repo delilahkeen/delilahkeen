@@ -3,6 +3,12 @@
  
 <img width="150" height="155" src="https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/6/64/I%27ll_Support_You%21_In-Game.png/revision/latest?cb=20251126223646"/>
 
+<p align="center"> 
+ 
+<p align="center"> 
+ 
+ ⠀⠀<p align="center"> ⠀  [G,](https://github.com/gayxter) [S,](https://github.com/shellysfossilexhibit) [V,](https://github.com/veetles) [L](https://github.com/LuminescentOceansSys) <- These are the people i naturally sit around , give them a follow ! <3
+ 
 - - -
 
 <p align="center">
