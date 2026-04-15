@@ -1,12 +1,12 @@
 
 <p align="center">
  
-
+<img width="150" height="155" src="https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/6/64/I%27ll_Support_You%21_In-Game.png/revision/latest?cb=20251126223646"/>
 
 - - -
 
 <p align="center">
-$\color{red}{\textsf{look at my stuff b4 interacting}}$ 
+$\color{purple}{\textsf{look at my stuff b4 interacting}}$ 
 
 <p align="center">
  
@@ -18,7 +18,7 @@ $\color{red}{\textsf{look at my stuff b4 interacting}}$
   - - -
   
    <p align="center">
-  $\color{yellow}{\textsf{i only follow people that i talked to on pony town.}}$
+  $\color{pink}{\textsf{i only follow people that i talked to on pony town.}}$
   ⠀<p align="center">
 
  
