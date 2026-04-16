@@ -7,7 +7,7 @@
  
 <p align="center"> 
  
- ⠀⠀<p align="center"> ⠀  [G,](https://github.com/gayxter) [S,](https://github.com/shellysfossilexhibit) [V,](https://github.com/veetles) [L](https://github.com/LuminescentOceansSys) <- These are the people i naturally sit around , give them a follow ! <3
+ ⠀⠀<p align="center"> ⠀  [G,](https://github.com/thewardenmcsm) [S,](https://github.com/shellysfossilexhibit) [V,](https://github.com/veetles) [L](https://github.com/LuminescentOceansSys) <- These are the people i naturally sit around , give them a follow ! <3
  
 - - -
 
