@@ -84,6 +84,8 @@ $\color{purple}{\textsf{look at my stuff b4 interacting}}$
 <img src="https://64.media.tumblr.com/2ec1bb7e0ea52dff86cfc97ceb1ec3b2/a94a53ba9d809366-4d/s100x200/e6e98e980b4ce122ae6eefe31e0d04a2526c254b.gifv"/>
 <img src="https://64.media.tumblr.com/113d34a96b488b97881f703b3acb9c12/7b3e5d4e3f430bcb-89/s100x200/66026c6073150bbd702ef25ea20b10616443dc34.pnj"/>
 <img src="https://64.media.tumblr.com/797e75abcf949fa4c5a13df824ec3c36/7b3e5d4e3f430bcb-9b/s100x200/879a1753158a553adac1f7ebd48043e44a48f854.pnj"/>
+<img src="https://64.media.tumblr.com/808437f07452ff40f909090de8de47da/e051b086b7a854f7-3c/s100x200/5fcd76e547cdf56b269a661b36ea92e3558fe4de.gifv"/>
+<img src="https://64.media.tumblr.com/dad3a516b46a36cb93a4fedad0b0059d/e051b086b7a854f7-bf/s100x200/66a8efdc21d12757cfb985d4d4f340cdba482de2.jpg"/>
   
 </p>
 
