@@ -85,4 +85,12 @@ $\color{purple}{\textsf{look at my stuff b4 interacting}}$
   
 </p>
 
+- - -
 
+<p align="center">
+
+<img src="https://64.media.tumblr.com/d346ae366e328ccff2935a9eb8ee5656/3c4cb11a7b62132e-6b/s250x400/bbb9e0eabd285d0d94682f91f41307e49997f056.gifv"/>
+<img src="https://64.media.tumblr.com/f897f8ba73c43801e2e7610d14d11021/3c4cb11a7b62132e-bb/s250x400/5f605886cb2e14cc681d9a0946e2c07ece8836fe.gifv"/>
+<img src="https://64.media.tumblr.com/770da38f20b4c571a3066c8ea8e67c9c/3c4cb11a7b62132e-74/s250x400/151e3572f175d72f69d93d0352261852c3091a84.gifv"/>
+<img src="https://64.media.tumblr.com/4e97eff94daddfe0192e73f945332e28/a2de2028830bd5cb-d0/s250x400/5f57f3da5df394a132c5b1409491032229e79e5e.gifv"/>
+<img src="https://64.media.tumblr.com/d416b7dfd46b11f13a09309e743ef697/876726d74c67c159-4e/s250x400/1b6579d16bfc40bb46d73354ac34a3e3d79d46f3.gifv"/>
