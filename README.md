@@ -82,6 +82,8 @@ $\color{purple}{\textsf{look at my stuff b4 interacting}}$
 <img src="https://64.media.tumblr.com/f2417f8e70c76c726b60cb9223555dac/9edd4caf7a407676-df/s100x200/ca9842d25a4cd9d820fe757369924b6e82a6d563.pnj"/>
 <img src="https://64.media.tumblr.com/3d89844cfe2d30effba3ff30c37a1708/9edd4caf7a407676-14/s100x200/3afb459ecef06e823826ad19e830bb8491c0f7c7.pnj"/>
 <img src="https://64.media.tumblr.com/2ec1bb7e0ea52dff86cfc97ceb1ec3b2/a94a53ba9d809366-4d/s100x200/e6e98e980b4ce122ae6eefe31e0d04a2526c254b.gifv"/>
+<img src="https://64.media.tumblr.com/113d34a96b488b97881f703b3acb9c12/7b3e5d4e3f430bcb-89/s100x200/66026c6073150bbd702ef25ea20b10616443dc34.pnj"/>
+<img src="https://64.media.tumblr.com/797e75abcf949fa4c5a13df824ec3c36/7b3e5d4e3f430bcb-9b/s100x200/879a1753158a553adac1f7ebd48043e44a48f854.pnj"/>
   
 </p>
 
@@ -94,3 +96,7 @@ $\color{purple}{\textsf{look at my stuff b4 interacting}}$
 <img src="https://64.media.tumblr.com/770da38f20b4c571a3066c8ea8e67c9c/3c4cb11a7b62132e-74/s250x400/151e3572f175d72f69d93d0352261852c3091a84.gifv"/>
 <img src="https://64.media.tumblr.com/4e97eff94daddfe0192e73f945332e28/a2de2028830bd5cb-d0/s250x400/5f57f3da5df394a132c5b1409491032229e79e5e.gifv"/>
 <img src="https://64.media.tumblr.com/d416b7dfd46b11f13a09309e743ef697/876726d74c67c159-4e/s250x400/1b6579d16bfc40bb46d73354ac34a3e3d79d46f3.gifv"/>
+<img src="https://64.media.tumblr.com/2d58a4a0ca1f565bfe08df413bde2aa9/eace457b85a90688-f4/s250x400/ab2818a5bef1466dbc773fdce080fb95a9d34f77.gifv"/>
+<img src="https://64.media.tumblr.com/e83c328502e37509c016074a77a262f4/f6d746d122a126a6-37/s250x400/3eaf68d740734665d7d3a352c012d7517c642ae3.gifv"/>
+<img src="https://64.media.tumblr.com/fb8a004bfbf605f2cd486f2bb2f085bb/aad852d783659d03-0b/s250x400/d9280ab0712b9144374863a3d0b86d90d0e98d9b.gifv"/>
+<img src="https://64.media.tumblr.com/df864ef07df23854ff75acb7a93aa505/aad852d783659d03-6f/s250x400/41d1cb406859a051b6758cb286fc3f5fa0c7fe83.gifv"/>
