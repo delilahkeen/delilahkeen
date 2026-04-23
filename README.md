@@ -20,7 +20,7 @@ $\color{purple}{\textsf{look at my stuff b4 interacting}}$
 
 <p align="center">
  
- ⠀⠀<p align="center"> ⠀ [strawpage](https://jurm.straw.page/) ⠀⠀<p align="center"> ⠀[pony town info](https://mattsponytowninfo2.straw.page/)  ⠀[fictkin list](https://pronouns.cc/meistro) ⠀ 
+ ⠀⠀<p align="center"> ⠀ [strawpage](https://jurm.straw.page/) ⠀⠀<p align="center"> ⠀[pony town info](https://mattsponytowninfo2.straw.page/)  ⠀[fictkin list](https://pronouns.cc/meistro) ⠀ [rentry](https://rentry.co/cooljane)
 
 
 
