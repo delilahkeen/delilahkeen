@@ -7,7 +7,7 @@
 
 <p align="center">
  
- ⠀⠀<p align="center"> ⠀ [strawpage](https://jurm.straw.page/) ⠀⠀<p align="center"> ⠀[pony town info](https://mattsponytowninfo2.straw.page/)  ⠀[fictkin list](https://pronouns.cc/meistro) ⠀ [f/o rentry](https://rentry.co/cooljane)
+ ⠀⠀<p align="center"> ⠀ [strawpage](https://jurm.straw.page/) ⠀⠀<p align="center"> ⠀[pony town info](https://mattsponytowninfo2.straw.page/)  ⠀[fictkin list](https://pronouns.cc/meistro) ⠀ [f/o rentry](https://rentry.co/cooljane) [ata](https://artfull.atabook.org)
 
 
 
