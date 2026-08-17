@@ -7,7 +7,7 @@
               
 　　　　　　　　　　　　　　　　　　　　　　　　[新ᵇᵒᵒᵏ](https://delilahkeen.atabook.org) 　　　　[strawpage](https://candyapplcookie.straw.page) 
             
-　　　　　　　　　　　 ${\textsf{\color{#ec96f2} Please don't be scared to say hi! }}$ ${\textsf{\color{#fff9dd} I don't bite!! }}$  **${\textsf{\color{#ec96f2} I love making new friends :3 }}$** 
+　　　　　　　　　　　 ${\textsf{\color{#ec96f2} Please don't be scared to say hi! }}$ ${\textsf{\color{#fff9dd} I don't bite!! }}$  **${\textsf{\color{#ff9ed7} I love making new friends :3 }}$** 
             
 　　　　　　　　　　
 　　　　　　　　　　　　　![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fdelilahkeen%2F&label=blossom%20buddies%20%E2%99%A1&labelColor=%23ffcce6&countColor=%23593559&style=plastic)
